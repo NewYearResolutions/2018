@@ -3,7 +3,7 @@ New Year Resolutions for 2018
 
 Telling other people about your goals is a great way to motivate yourself to actually do them. How about making your 2018 New Year Resolutions public along with mine?
 
-Need inspiration, check out the [Impossible List](https://impossiblehq.com/impossible-list/)
+Need inspiration? Check out the [Impossible List](https://impossiblehq.com/impossible-list/).
 
 # Resolutions
 
