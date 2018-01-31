@@ -11,7 +11,7 @@ Need inspiration? Check out the [Impossible List](https://impossiblehq.com/impos
 - [ ] Career - Write 12 blog posts (0 / 12)
 - [ ] Wealth - Create a better system for tracking expenses and investments
 - [ ] Hobbies - Record a drum cover for a full song and publish it on YouTube
-- [ ] Fitness - Do 10 consecutive pullups (0 / 10)
+- [ ] Fitness - Cycle from London to Paris
 
 # Contributing
 
